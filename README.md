@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nelih aka. foroxygenn
+- 👋 Hi, I’m Melih aka. foroxygenn
 - 👀 I’m interested in video editing.
 - 🌱 I’m currently learning coding
 - 📫 For advertising, collaboration or more:
