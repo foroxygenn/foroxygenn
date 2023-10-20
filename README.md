@@ -3,5 +3,4 @@
 - 🌱 I’m currently learning coding
 - 📫 For advertising, collaboration or more:
 - melihaydinlibusiness@gmail.com
-- linkedin: https://www.linkedin.com/in/melihaydinli
 - instagram: https://www.instagram.com/melihhaydinli/
